@@ -1,1 +1,1 @@
-# google_next_24
+# Google Next 24 Insigts
